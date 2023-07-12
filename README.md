@@ -1,5 +1,5 @@
 # 💫 About Me:
-🖊️ Currently working on a data science project.<br>🔎 Self-improvement is what I am.<br>🔭 A developer after new and magnificient.<br>♿ Developing projects with team rocks.<br>⚡ Having fun is what I am expecting.<br>☎️ Contact me: kayguzel255@gmail.com
+🖊️ Currently working on a data science project.<br>🔎 Self-improvement is what I am.<br>🔭 A developer after new and magnificient.<br>♿ Developing projects with team rocks.<br>⚡ Having fun is what I am expecting.<br>☎️ Contact me: kutluhan@sabanciuniv.edu
 
 
 ## 🌐 Socials:
